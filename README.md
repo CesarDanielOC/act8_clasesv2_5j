@@ -5,7 +5,8 @@ Código
 
 ![image](https://github.com/user-attachments/assets/74c77ff9-d114-4753-8c22-c4d7875834ff)
 resultado
-![image](https://github.com/user-attachments/assets/65956f2c-2042-4fcf-a488-0432317d70c1)
+![image](https://github.com/user-attachments/assets/0dd5efcd-830f-46c8-99a1-67013cb0755d)
+
 
 
 
