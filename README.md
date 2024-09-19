@@ -1,6 +1,7 @@
 # act8_clasesv2_5j
 Código
-![image](https://github.com/user-attachments/assets/d5a56319-2b04-4be7-beac-4aee189a0522)
+![image](https://github.com/user-attachments/assets/ca5f2e61-a05a-4a86-82a7-2d4bdcebbc45)
+
 
 ![image](https://github.com/user-attachments/assets/74c77ff9-d114-4753-8c22-c4d7875834ff)
 resultado
